@@ -1,2 +1,2 @@
 # opnukebysnipez
-My nuke bot
+## LOL YOUR A SKID GTFO 
